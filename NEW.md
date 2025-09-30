@@ -1,1 +1,0 @@
-ebal vse v rot
